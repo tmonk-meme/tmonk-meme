@@ -1,7 +1,8 @@
 
 # $TMONK - The Meme Coin That's Seriously Saving the World
 
-![TMONK Logo](assets/logo.png)
+![ai tmonk images (3)](https://github.com/user-attachments/assets/d7161377-c8ea-4667-8e1c-450970afae2c)
+
 
 Welcome, fellow apes, to the $TMONK revolution—where memes meet meaning, and monkeys drive the future of sustainable crypto! In a jungle of dog coins and frog tokens, $TMONK swings in to prove that even the silliest corners of the internet can drive real-world change. 
 
